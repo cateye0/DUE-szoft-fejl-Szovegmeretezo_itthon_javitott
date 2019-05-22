@@ -1,0 +1,1 @@
+# DUE-szoft-fejl-Szovegmeretezo_itthon_javitott
